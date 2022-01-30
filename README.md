@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Moris31
 - 👀 I’m interested in blockchain, and Web designing. 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on web designing and developing. 
+- 💞️ I’m looking to collaborate on blockchain,web designing and developing. 
 - 📫 how to reach me: 
 -     Linkedin:  https://www.linkedin.com/in/mahmood-sahebi-97a6511b3
 -    
